@@ -1,1 +1,0 @@
-# osseven.github.io
